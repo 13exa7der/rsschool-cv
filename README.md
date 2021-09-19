@@ -1,1 +1,0 @@
-https://13exa7der.github.io/rsschool-cv/cv
